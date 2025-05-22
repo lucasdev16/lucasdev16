@@ -30,7 +30,7 @@
 ### 📫 Vamos conversar?
 
 - 💬 Me chama para colaborar ou trocar ideia!
-- 📍 Abert@ a freelas simples, collabs ou estágios remotos.
+- 📍 Aberto a freelas simples, collabs ou estágios remotos.
 
 
 ---
